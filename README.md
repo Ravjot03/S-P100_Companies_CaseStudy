@@ -1,1 +1,1 @@
-# S-P100_Companies_CaseStudy
+# S-P100_Companies_CaseStud
